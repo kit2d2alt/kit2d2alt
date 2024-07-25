@@ -1,4 +1,4 @@
-# $\color{#5865F2}{\textsf{Discord}}$ `kit2d2`
+# $\color{#5865F2}{\textsf{Discord}}$ `.peenar.`
 
 ## Hobbyist, no big projects at the moment.
 
