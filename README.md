@@ -1,6 +1,6 @@
 # $\color{#5865F2}{\textsf{Discord}}$ `kit2d2`
 
-## Hobbyist, no big projects at the moment.
+## Freelancer/Hobbyist, no big projects at the moment. For hire!
 
 ## $\color{lightgreen}{\textsf{Donations}}$ 💸
 Donations are very useful. If you have any money you would like to donate, no matter how small, $\color{#0079C1}{\textsf{PayPal}}$ `azelifyofficial@gmail.com`. Everything is welcome!
